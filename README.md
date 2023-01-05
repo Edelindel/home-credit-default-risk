@@ -4,7 +4,6 @@ Home Credit default risk
 Di PT Zona Edukasi Nusantara
 
 Anggota Kelompok:
-
 Fidela Elysia Riswi Putri
 Edelin Gultom
 Anak Agung Bintang Krisna Dewi
